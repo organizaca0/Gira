@@ -1,4 +1,4 @@
-# Welcome to your Gira 👋
+# Bem vindo a Gira 👋
 
 ## Gira ou Jira(do quimbundo "nijra": "caminho") na Umbanda é a reunião/agrupamento de vários espíritos de uma determinada categoria, que manifestam-se através da incorporação nos médiuns.
 
